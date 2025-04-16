@@ -11,3 +11,4 @@ Uploading 無題の動画 ‐ Clipchampで作成 (1).mp4…
 
 # ユーザー操作
 ![Image](https://github.com/user-attachments/assets/4af39c57-b0b6-475d-a8f4-4f6ebe30910b)
+![Image](https://github.com/user-attachments/assets/f56eabbc-0b01-471e-ad97-83b5dc341af1)
